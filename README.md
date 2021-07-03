@@ -1,0 +1,3 @@
+# NiceIsRice.github.io
+
+Wow
